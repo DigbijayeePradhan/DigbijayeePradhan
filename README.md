@@ -1,6 +1,6 @@
 💫 Hi 👋, I'm Digbijayee Pradhan
 
-Anout Me:
+About Me:
 
 A Student || Fresher || Looking for Job
 
